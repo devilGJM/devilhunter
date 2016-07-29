@@ -1,0 +1,2 @@
+# devilhunter
+stronger   smarter
